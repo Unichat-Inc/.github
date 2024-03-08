@@ -13,6 +13,6 @@
 [Télécharger l'app bureau](https://www.unichat.fr/download) <br>
 [Equipe](https://www.unichat.fr/team) <br>
 
-*Mention spéciale à : Malouche, Noa, Jules, Shinraaa, Skudar* ❤
+*Mention spéciale à : Malouche, Noa, Jules, Shinraaa, Skudar, Zazoucoco, et Gaspard ; pour leurs soutien* ❤
 
 -- Unichat.
