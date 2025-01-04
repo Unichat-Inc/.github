@@ -13,6 +13,6 @@
 [Télécharger l'app bureau](https://www.unichat.fr/download) <br>
 [Equipe](https://www.unichat.fr/team) <br>
 
-*Mention spéciale à : Malouche, Noa, Jules, Shinraaa, Skudar, Zazoucoco, et Gaspard ; pour leurs soutien* ❤
+* Actuellement, le réseau n'existe plus pour des raisons financières et par manque de staff. Mais Unichat reviendra un jour, sous un autre nom.
 
--- Unichat.
+-- Iandres, CEO & Dev d'Unichat.
